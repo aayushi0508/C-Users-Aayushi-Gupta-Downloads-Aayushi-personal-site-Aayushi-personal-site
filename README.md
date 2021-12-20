@@ -1,2 +1,2 @@
-# C-Users-Aayushi-Gupta-Downloads-Aayushi-personal-site-Aayushi-personal-site
+Aayushi
 Personal Site
